@@ -17,3 +17,7 @@
 
 ![hippo](https://j.gifs.com/OM4A0r.gif)
 
+#### Loading 🔵
+
+![hippo](https://j.gifs.com/Mw4yGA.gif)
+
